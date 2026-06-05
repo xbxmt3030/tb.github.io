@@ -1,4 +1,17 @@
 
+# 1212特别论坛·从圣经现象看美国献国
+  
+  * [赵晓：从圣经现象看美国献国](https://www.asuswebstorage.com/navigate/a/#/s/F24A3877B2BE4078B84F5229BC58CB4FY)
+  * [刘军宁：为什么要把美国重新献给上帝](https://www.asuswebstorage.com/navigate/a/#/s/B6E984B32AA143F8A7FB409734C0EF0AY)
+  * [蔡慎坤：美国250年长盛不衰的真正秘密](https://www.asuswebstorage.com/navigate/a/#/s/9DF17BAE1C6D4E0A8CE2E56F81EDC19FY)
+  * [王志勇：圣约、国家与信仰-再谈Christian Nationalism](https://www.asuswebstorage.com/navigate/a/#/s/82777DDE753B44EFA2077654544ADEF5Y)
+  * [圆桌论坛与互动](https://www.asuswebstorage.com/navigate/a/#/s/F1E6BBA1E8F14F24888989B317E24905Y)
+  * [王干城：美国灯塔与全球秩序](https://www.asuswebstorage.com/navigate/a/#/s/EA068FCA47F1443C97FF14277A18C896Y)
+  * [冯雪薇：法律之上是什么？-我的认知与我的呼召](https://www.asuswebstorage.com/navigate/a/#/s/2CE23B580F2D448EB839382343A00E7FY)
+  * [论坛沙龙：美国250年给中国最大的启示是什么？](https://www.asuswebstorage.com/navigate/a/#/s/D252149202AD43EC8E9CF59FA2866BB3Y)
+-------------------------------------------------------------
+
+
 # 260521-1212特别论坛“从圣经现象看川普访华_大国交易文明、秩序与中国转化”
 
   * [260521-1212特别论坛-上](https://www.asuswebstorage.com/navigate/a/#/s/EF08AED572BD4A2D85BC0FD4FDB7AC7CY)
