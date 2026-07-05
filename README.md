@@ -1,4 +1,14 @@
 
+# “山巅之城”与自由共和——美国建国250周年特别礼拜聚会暨1212论坛
+  
+  * [王志勇：城造在山上，是不能隐藏的](https://www.asuswebstorage.com/navigate/a/#/s/B7217D4475B1499783E8E9658EF416E0Y)
+  * [赵晓：自由、共和与天国国民：美国是镜子，天国才是答案](https://www.asuswebstorage.com/navigate/a/#/s/52FF52CE634F455C95ADEA1F49DBF56FY)
+  * [刘军宁：上帝统治美国，十诫铸造自由](https://www.asuswebstorage.com/navigate/a/#/s/A3BA08A983C1442FBC5A463C9A4AE2C3Y)
+  * [蔡慎坤：从山巅之城到文明十字路口](https://www.asuswebstorage.com/navigate/a/#/s/AE53635CC6CE42618FB61D44F36C003FY)
+  * [总结分享](https://www.asuswebstorage.com/navigate/a/#/s/088F1B7ED4B4495DB7865777CD90178EY)
+-------------------------------------------------------------
+
+
 # 1212特别论坛·从圣经现象看美国献国
   
   * [赵晓：从圣经现象看美国献国](https://www.asuswebstorage.com/navigate/a/#/s/F24A3877B2BE4078B84F5229BC58CB4FY)
