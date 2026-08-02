@@ -1,4 +1,13 @@
 
+# 2026暑假特别公益课：AI视频制作手把手
+  
+  * [Victor:AI视频制作手把手](https://www.asuswebstorage.com/navigate/a/#/s/4DD5B8E5F546469AA0381A15BD71D734Y)
+  * [John:AI视频手把手](https://www.asuswebstorage.com/navigate/a/#/s/F2094BDF95114D0090B66F66B07E5188Y)
+  
+-------------------------------------------------------------
+
+
+
 # “山巅之城”与自由共和——美国建国250周年特别礼拜聚会暨1212论坛
   
   * [王志勇：城造在山上，是不能隐藏的](https://www.asuswebstorage.com/navigate/a/#/s/B7217D4475B1499783E8E9658EF416E0Y)
